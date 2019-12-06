@@ -1,0 +1,2 @@
+# Gyujcs-ny-programja
+Almalé
